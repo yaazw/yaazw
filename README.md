@@ -6,7 +6,7 @@
 -  Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 -  @_yaazw on Instagram
 
-![](https://media.tenor.com/0aCMR4zGhyYAAAAC/death-the.gif)
+![](https://media.tenor.com/U_nVBruLPAsAAAAd/neko-neco.gif)
 
 <!---
 yaazw/yaazw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
